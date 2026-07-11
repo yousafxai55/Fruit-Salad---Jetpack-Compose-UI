@@ -41,3 +41,15 @@ Fruit Salad is a modern, high-performance Android application built entirely wit
 ---
 Developed by [Muhammad Awais Khan]
 
+
+
+https://github.com/user-attachments/assets/99291f6f-38e5-40a9-9c90-2b96056d7869
+
+
+
+
+
+
+
+
+
